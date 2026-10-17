@@ -1,4 +1,4 @@
-# Jawaban Praktikum: <silvi maelani> (<10224102>)
+# Jawaban Praktikum: <silvimaelani> (<10224102>)
 
 ## Bagian 1: Pemanasan
 1.
